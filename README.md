@@ -1,0 +1,2 @@
+# RayhonaAliyevaAI
+suniy intellekt 
